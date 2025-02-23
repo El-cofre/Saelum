@@ -8,3 +8,8 @@ Estar atentos a los plugins:
 - LP
 
 Si te lanza error, puedes ponerte en contacto conmigo para darle la solucion.
+
+
+
+# Descargas:
+### iCloud: https://www.icloud.com/iclouddrive/0e6OoaWVwrQGWC1Zfl2MtLWeQ#Saelum
